@@ -35,11 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-CERTEINE
-comfortable Expositions
-of the constant Martyr
-of Christ, M. Iohn Hooper,
-Bishop of Glocest
+
 1. TO ALL THE FAITHfull
 flocke of Christ, grace and
 peace from God the Creatour, Christ the
